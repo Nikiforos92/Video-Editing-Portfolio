@@ -155,6 +155,10 @@
 - 🔗 [Rescue the most secret brainrots from the police!](https://www.youtube.com/watch?v=nKQyi80vplw)
 🇬🇷 Title : [ΣΩΣΕ από την ΑΣΤΥΝΟΜΙΑ τα πιο ΜΥΣΤΙΚΑ BRAINROT!]
 
+- 🔗 [I ESCAPED from the QUICKSAND for the GODLY BRAINROT.](https://youtu.be/G6ZKVcZeNG0?si=woUCxqBsnsSVcZZi)
+🇬🇷 Title : [ΓΛΙΤΩΣΑ από την ΚΙΝΟΥΜΕΝΗ ΑΜΜΟ για τα GODLY BRAINROT.]
+
+
 
 
 
