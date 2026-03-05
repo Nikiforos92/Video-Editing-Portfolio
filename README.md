@@ -99,8 +99,29 @@
 - 🔹 [50.000.000$ Ferrari 💸](https://www.youtube.com/shorts/XV_TKvZyg8Q)
 🇬🇷 [50.000.000$ Ferrari 💸]
 
-- 🔹 [Forbidden Games](https://www.youtube.com/shorts/ZSlyhAhnovs)
-🇬🇷 [Απαγορευμένα Games]
+- 🔹 [GRWM for the Movie](https://www.youtube.com/shorts/qONraiYOxjo)
+🇬🇷 [GRWM για την Ταινία!]
+
+- 🔹 [LEGIT CAME FOR THE FOOD 😂](https://www.youtube.com/shorts/7DIHkJnLkg0)
+🇬🇷 [Ο LEGIT ΗΡΘΕ ΓΙΑ ΤΟ ΦΑΓΗΤΟ 😂]
+
+- 🔹 [HOW HARD IS IT TO FILM A MOVIE?](https://www.youtube.com/shorts/nwnLIxruYxg)
+🇬🇷 [ΠΟΣΟ ΔΥΣΚΟΛΑ ΓΥΡΙΖΕΤΑΙ ΜΙΑ ΤΑΙΝΙΑ?]
+
+- 🔹 [NOSTALGIA HIT HIM IN THIS CHALLENGE](https://www.youtube.com/shorts/_3SyeiDhq4A)
+🇬🇷 [Η ΝΟΣΤΑΛΓΙΑ ΤΟΝ ΧΤΥΠΗΣΕ ΣΕ ΑΥΤΟ ΤΟ CHALLENGE]
+
+- 🔹 [THE GREEK KRATOS IN THE OPPONENTS FOR GOOD OR UNITY](https://www.youtube.com/shorts/Revm_OV5od0)
+🇬🇷 [Ο ΕΛΛΗΝΑΣ KRATOS ΣΤΟ ΑΝΤΙΠΑΛΟΙ ΓΙΑ ΚΑΛΟ Η ΕΝΩΣΗ]
+
+- 🔹 [‪NeverLander‬ GOT STRESSED IN THIS CHALLENGE](https://www.youtube.com/shorts/nyod4C_t4S8)
+🇬🇷 [Ο ‪NeverLander‬ ΑΓΧΩΘΗΚΕ ΣΕ ΑΥΤΟ ΤΟ CHALLENGE]
+
+- 🔹 [THIS IS A SPOILER FOR OUR NEW MOVIE](https://www.youtube.com/shorts/tZC1s0F1sQk)
+🇬🇷 [ΑΥΤΟ ΕΙΝΑΙ SPOIL ΓΙΑ ΤΗΝ ΝΕΑ ΜΑΣ ΤΑΙΝΙΑ]
+
+- 🔹 [YOU WON’T BELIEVE WHAT ‪Gianuba‬ PREPARED FOR US](https://www.youtube.com/shorts/5_ycxkVCWNU)
+🇬🇷 [ΔΕΝ ΘΑ ΠΙΣΤΕΨΕΙΣ ΤΙ ΜΑΣ ΕΤΟΙΜΑΣΕ Ο ‪Gianuba‬]
 
 ─────────────────────────────────────────────────────────────────────────────────────────
   ## 📱 [Youtube Channel - W1ndzIRL](https://www.youtube.com/@W1ndzIRL)
